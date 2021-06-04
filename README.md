@@ -7,4 +7,4 @@
 - 💬 Ask me about anything
 - 📫 How to reach me: gloomi@gmail.com
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: I love science fiction movies✌️
+- ⚡ I love science fiction movies✌️
